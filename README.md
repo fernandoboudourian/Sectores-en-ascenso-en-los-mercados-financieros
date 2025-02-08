@@ -1,1 +1,2 @@
 # Sectores-en-ascenso-en-los-mercados-financieros
+La IA, blockchain y la biotecnología están transformando la economía. Estos sectores han cambiado la estructura de los índices bursátiles, impulsando nuevas oportunidades de inversión. Desde la automatización hasta los avances médicos, la innovación sigue marcando el ritmo del futuro financiero. La diversificación se convierte en la mejor estrategia para aprovechar estos cambios.
